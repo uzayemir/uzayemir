@@ -2,5 +2,7 @@ Having completed my Ph.D., in which I studied BOLD fMRI signal transients with d
 
 
 https://www.ncbi.nlm.nih.gov/myncbi/uzay.emir.1/bibliography/public/
+
 https://scholar.google.com/citations?user=H5Hmx0sAAAAJ&hl=th
+
 https://www.researchgate.net/profile/Uzay-Emir/research
