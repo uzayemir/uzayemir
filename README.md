@@ -6,3 +6,5 @@ https://www.ncbi.nlm.nih.gov/myncbi/uzay.emir.1/bibliography/public/
 https://scholar.google.com/citations?user=H5Hmx0sAAAAJ&hl=th
 
 https://www.researchgate.net/profile/Uzay-Emir/research
+
+https://www.youtube.com/@uzayemir1
